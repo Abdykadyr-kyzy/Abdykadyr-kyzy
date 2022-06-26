@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Abdykadyr-kyzy
-- 👀 I’m interested in playing Sudoku.
-- 🌱 I’m currently learning in IT course.
+- 👀 My hobby is playing sudoku, because solving this puzzle refreshes my mind and makes it easier to complete other tasks with renewed vigor and energy.
 - 💞️ I’m looking to collaborate on whith IT company
 - 📫 How to reach me ...
 
